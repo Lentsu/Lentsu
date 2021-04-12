@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Lentsu
+- 🌱 I’m currently learning -
+- 📫 Reach me through gmail (lenni.toikkanen@gmail.com)
