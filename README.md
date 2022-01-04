@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Lentsu
-- 🌱 I’m currently learning Electrical engineering in Aalto University
+- 🌱 I’m currently learning Electrical Engineering at Aalto University
 - 📫 Reach me through gmail (lenni.toikkanen@gmail.com)
