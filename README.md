@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Lentsu
-- 🌱 I’m currently learning Electrical Engineering
+- 🌱 Check out my website https://lennitoikkanen.fi
